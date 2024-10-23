@@ -1,4 +1,4 @@
 - A conglomerate of city states
 - Dinosaurs and stuff
 	- Has an illegal trade of dinosaurs and poachers
-- To the west is an sea of islands known as the 
+- To the west is an sea of islands known as the [[Land of Canarys]] 
