@@ -27,3 +27,8 @@
 
 # Summary
 - The party kills Adore
+- The party then gives the Behlit to Brudevich
+- The party learns of the God Hand
+- Brudevich awakens it and summons the God Hand
+- The God Hand kills Brudevich for joining the conglomerate and aligning with Viven
+- 
