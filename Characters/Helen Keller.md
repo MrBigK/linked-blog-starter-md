@@ -1,7 +1,7 @@
 # Description
 - A human women
 - Dressed in thieves guild attire
-- Came from the thieves guild in ????
+- Came from the thieves guild in Kai Haven
 # Rank
 - Very low rank in her guild
 # Personal Quest
