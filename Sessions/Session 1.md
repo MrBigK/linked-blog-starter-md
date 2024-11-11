@@ -31,4 +31,5 @@
 - The party learns of the God Hand
 - Brudevich awakens it and summons the God Hand
 - The God Hand kills Brudevich for joining the conglomerate and aligning with Viven
-- 
+- A ghoul comes flying through the wall and the party notices the town on fire
+- Johnny Sins is a vampire
