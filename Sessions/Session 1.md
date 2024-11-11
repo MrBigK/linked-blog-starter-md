@@ -26,3 +26,4 @@
 # Recap
 
 # Summary
+- The party kills Adore
