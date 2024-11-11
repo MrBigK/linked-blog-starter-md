@@ -20,7 +20,9 @@
 # Important Rules
 
 # Planned Encounters
-
+- Wizard Battle
+- Encounter with Count Brudevich
+- Once Brudevich is dealt with, ghouls and goblins attack the city as the Gargoyles collapse 
 # Recap
 
 # Summary
