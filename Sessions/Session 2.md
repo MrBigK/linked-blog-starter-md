@@ -24,12 +24,6 @@
 # Planned Encounters
 - 
 # Recap
-After defeating Adore, you all returned back to the top level of the Castle where Brudevich resided. Johnny si
+After defeating Adore, you all returned back to the top level of the Castle where Brudevich resided. Johnny Sins was then controlled by Brudevich and opened the Behelit gateway and summoned the God Hand. The God Hand quickly dispatched Brudevich because of his alignment with a certain indivual named Viven, as well as being involved with the Conglomerate. After these events unfolded, a ghoul came crashing through the wall and you all looked outside and noticed the town was being ransacked by all sorts of creatures of the night. 
+Who is Viven? What is the Conglomerate? And what is going on with the town? Those are the questions in the back of your mind right now. 
 # Summary
-- The party kills Adore
-- The party then gives the Behlit to Brudevich
-- The party learns of the God Hand
-- Brudevich awakens it and summons the God Hand
-- The God Hand kills Brudevich for joining the conglomerate and aligning with Viven
-- A ghoul comes flying through the wall and the party notices the town on fire
-- Johnny Sins is a vampire
