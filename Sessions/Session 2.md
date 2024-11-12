@@ -24,7 +24,7 @@
 # Planned Encounters
 - 
 # Recap
-After defea
+After defeating Adore, you all returned back to the top level of the Castle where Brudevich resided. Johnny si
 # Summary
 - The party kills Adore
 - The party then gives the Behlit to Brudevich
