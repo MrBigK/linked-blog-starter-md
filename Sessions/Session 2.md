@@ -23,7 +23,7 @@
 # Important Rules
 
 # Planned Encounters
-
+- Adore Gavilucci, speaks on Colbys shoulder but since his essence is so weak, he has amnesia
 - Encounter with zombies and ghouls in the town.
 	- Every round, more zombies will appear and every third round, a boss monster will appear.
 - Once the party has defeated the skaab, the bar keep from earlier will come up and talk to the party.
