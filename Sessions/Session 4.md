@@ -28,7 +28,7 @@
 - They hand the party a piece of the cursed gold that has been with the town for generations.
 - They then ask that the party should stay awhile, drink, and celebrate.
 - They also tell the party, whatever they need they are willing to provide.
-- 
+- During the celebration, the party feels an ominous presence watching over them. A sense of d
 # Recap
 After encountering Sloth and him threating to kill the party, the townspeople came together to fend off Sloth for enough time for the party to rest. After resting, the party started their engagement with Sloth and fought him to the death. After a long, grueling fight and teleporting to Sloths domain, the party won by Helen shoving Abram up Sloths butt. Now, with Sloth defeated and the town back to normal, the party is ready to set out on their adventure. 
 # Summary
