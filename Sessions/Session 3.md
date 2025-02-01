@@ -36,3 +36,4 @@
 The party successfully defeated the zombies that were overrunning the town and the townsfolk took notice. Johnny tried to give a rousing speech but he sadly missed the mark and couldn't quite land. Its okay though, the townspeople think he's just a little bit retarded. 
 It was at this moment a mysterious figure comes across the horizon donning a gold mask, being carried in a palanquin.
 # Summary
+After encountering Sloth and him threating to kill the party, the townspeople came together to fend off Sloth for enough time for the party to rest. After resting, the party started their engagement with Sloth and fought him to the death. After a long, grueling fight and teleporting to Sloths domain, the party won by Helen shoving Abram up Sloths butt. Now, with Sloth defeated and the town back to normal, the party is ready to set out on their adventure. 
