@@ -28,7 +28,14 @@
 - They hand the party a piece of the cursed gold that has been with the town for generations.
 - They then ask that the party should stay awhile, drink, and celebrate.
 - They also tell the party, whatever they need they are willing to provide.
-- During the celebration, the party feels an ominous presence watching over them. A sense of d
+- During the celebration, the party feels an ominous presence watching over them. A sense of death looms over. Is it the booze or something more?
+- After, presumably, a wild night the party sets of on their next adventure.
+- While the party is sailing, Johnny Sins and his brother reflect on their time together.
+- When Kellan turns back to look at Johnny, there stands Viven, her hand on Johnnys back.
+- She explains what Sloths role was, what she plans to do, and that she can't have a couple of nobodies stand in the way of that. She says the party reminds her of a previous band of adventurers 
+- She says "Return to dust", and Johnny collapse into a thin powder, just like Count Barovich
+- Viven then leaves, but not without leaving the masks of Sloth and Gluttony behind.
+- The session then ends with the party rolling up to the final island, 
 # Recap
 After encountering Sloth and him threating to kill the party, the townspeople came together to fend off Sloth for enough time for the party to rest. After resting, the party started their engagement with Sloth and fought him to the death. After a long, grueling fight and teleporting to Sloths domain, the party won by Helen shoving Abram up Sloths butt. Now, with Sloth defeated and the town back to normal, the party is ready to set out on their adventure. 
 # Summary
