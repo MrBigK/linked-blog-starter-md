@@ -41,3 +41,8 @@
 # Recap
 After encountering Sloth and him threating to kill the party, the townspeople came together to fend off Sloth for enough time for the party to rest. After resting, the party started their engagement with Sloth and fought him to the death. After a long, grueling fight and teleporting to Sloths domain, the party won by Helen shoving Abram up Sloths butt. Now, with Sloth defeated and the town back to normal, the party is ready to set out on their adventure. 
 # Summary
+- The party left the town with roaring applause
+- Viven killed Johnny
+- The masks were left with the party
+- The party arrived at Sokara and met Colbys new character after a tussle with a bunch of thieves
+- They left part of the port broken
