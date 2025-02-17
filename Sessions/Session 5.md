@@ -24,7 +24,10 @@
 - The session starts with the party entering the bustling market of Sokkara and shopping, doing whatever they need to do.
 - They can see massive pyramids on the horizon
 - As the day goes on, Colby hears a voice in his head saying "My son, youve finally awakened"
-- 
+- Nicholas Grills is in the town, selling snake oil and tall tales of his previous adventures
+- The crowd begins to aggravate him and eventually he says that he will explore the pyramids
+- The crowd bursts out laughing and begins to mock him
+- Nick is wearing a cloak of billowing
 # Recap
 After encountering Sloth and him threating to kill the party, the townspeople came together to fend off Sloth for enough time for the party to rest. After resting, the party started their engagement with Sloth and fought him to the death. After a long, grueling fight and teleporting to Sloths domain, the party won by Helen shoving Abram up Sloths butt. Now, with Sloth defeated and the town back to normal, the party is ready to set out on their adventure. 
 # Summary
