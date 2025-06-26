@@ -19,8 +19,8 @@
 # Important Rules
 
 # Planned Encounters
-- The party fights the 
+- The party fights the Mummy Lord in his lair
+- The Mummy Lord consistently begs to be killed by the party and constantly calls Colby his son
 # Recap
 
 # Summary
-- Jason recieved the Bracers of Asmodeous
