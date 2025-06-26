@@ -21,6 +21,8 @@
 # Planned Encounters
 - The party fights the Mummy Lord in his lair
 - The Mummy Lord consistently begs to be killed by the party and constantly calls Colby his son
+- After the fight is over, the tomb begins to shake and crumble. The entrance has been sealed off. 
+- The Behelit begins to beckon and the
 # Recap
 
 # Summary
