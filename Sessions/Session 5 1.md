@@ -1,10 +1,8 @@
 # Characters
-1. [[Helen Keller]]
-2. [[Johnny Sins Brother]]
+
 
 # Current Threads
 - Gathering all of the cursed gold
-- Being pursued by the seven deadly sins
 - What is the God Hands relationship with Viven?
 - What is Vivens deal with the Conglomerate?
 - What is Colbys deal?
