@@ -25,7 +25,7 @@
 - The Behelit begins to beckon and the party is summoned to the God Hand
 - The God Hand possesses the mind of the party (DC 30 Will Save), and begins to show them visions of the creation of the world.
 - The God Hand breaks down who Viven is and what her motives are, and how she got this point.
-- The 
+- The party is then told that their mission is to kill Viven, take down the conglomerate, and that if they are successful, the God Hand will grant 
 # Recap
 
 # Summary
