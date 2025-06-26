@@ -22,7 +22,8 @@
 - The party fights the Mummy Lord in his lair
 - The Mummy Lord consistently begs to be killed by the party and constantly calls Colby his son
 - After the fight is over, the tomb begins to shake and crumble. The entrance has been sealed off. 
-- The Behelit begins to beckon and the
+- The Behelit begins to beckon and the party is summoned to the God Hand
+- The God Hand possesses the mind of the party (DC 30 Will Save), and begins to show them visions of the creation of the world 
 # Recap
 
 # Summary
