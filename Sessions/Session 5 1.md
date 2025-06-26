@@ -27,6 +27,7 @@
 - The God Hand breaks down who Viven is and what her motives are, and how she got this point.
 - The party is then told that their mission is to kill Viven, take down the conglomerate, and that if they are successful, the God Hand will grant each member of the party a wish.
 	- Specifically tells Hudson they can bring back Johnny Sins sister
+- The session ends with the party being teleported just outside of the pyramids
 # Recap
 
 # Summary
