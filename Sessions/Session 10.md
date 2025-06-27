@@ -30,5 +30,5 @@
 	- Specifically tells Hudson they can bring back Johnny Sins sister
 - The session ends with the party being teleported just outside of the pyramids
 # Recap
-
+- Starting outside the pyramid
 # Summary
