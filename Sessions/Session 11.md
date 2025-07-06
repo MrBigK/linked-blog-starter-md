@@ -15,7 +15,8 @@
 # Planned Encounters
 - It has been 3 weeks since the party disappeared inside of the pyramid, when the party returns. They discover they are wanted men after conversing with Nicholas Gryls
 - The party has to plan an escape off the island that is now swarming with guards.
-- The parties boat has been towed to an alcove where 
+- The parties boat has been towed to an alcove where it is impounded
+- 
 # Recap
 - Starting outside the pyramid
 # Summary
