@@ -18,5 +18,8 @@
 - The parties boat has been towed to an alcove where it is impounded
 - 
 # Recap
-- Starting outside the pyramid
+- Saved Father Gregories life
+- Chose to steal the sloop
+- Planning to send jason off to sabotage the massive boat
+- 
 # Summary
