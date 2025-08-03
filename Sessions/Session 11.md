@@ -21,5 +21,4 @@
 - Saved Father Gregories life
 - Chose to steal the sloop
 - Planning to send jason off to sabotage the massive boat
-- 
 # Summary
